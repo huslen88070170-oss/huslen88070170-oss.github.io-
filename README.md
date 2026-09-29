@@ -1,2 +1,2 @@
-# huslen88070170-oss.github.io
+# www.khuslen.mn
 Khuslen Ariunjarga - Mongolian National Team Athlete
